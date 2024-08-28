@@ -1,3 +1,8 @@
+_Prompt: give me some critical feedback for my poem:_
+
+_--snip--_
+
+______________________________________________________________________________________________________________________________________________________________
 Thank you for sharing your poem! It's a thought-provoking piece that explores the consequences of war and the loss of modern technology. Here are some suggestions to enhance it further:
 
 1. **Consistency in Tense**: Ensure that the tense remains consistent throughout the poem. For example, "Killing many living organisms on earth" could be changed to "kills many living organisms on earth" to match the present tense used in other lines.
