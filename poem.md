@@ -1,34 +1,34 @@
-Imagine living in a world
-in the twenty-second century,
-after the Disaster.
-A world without modern technology –
-no electricity to light the night,
-no gas to warm the cold,
-no tall buildings to touch the sky,
-and no phones to connect our souls.
-Why? You wonder.
-The Disaster destroyed them all!
+Imagine living in a world<br>
+in the twenty-second century,<br>
+after the Disaster.<br>
+A world without modern technology –<br>
+no electricity to light the night,<br>
+no gas to warm the cold,<br>
+no tall buildings to touch the sky,<br>
+and no phones to connect our souls.<br>
+Why? You wonder.<br>
+The Disaster destroyed them all!<br>
 
-Living in that kind of environment,
-people finally realised –
-War destroys the environment;
-War knocks down human intelligence;
-War kills many living organisms on Earth;
-War causes animals to go extinct;
-And war is something that,
-should be avoided…
+Living in that kind of environment,<br>
+people finally realised –<br>
+War destroys the environment;<br>
+War knocks down human intelligence;<br>
+War kills many living organisms on Earth;<br>
+War causes animals to go extinct;<br>
+And war is something that,<br>
+should be avoided…<br>
 
-In this new world, people learned to adapt,
-to live in harmony with nature,
-to be happy with the simple things in life,
-to find joy in the warmth of the sun,
-the cool and comforting wind,
-the sound of birds singing,
-and the beauty of the stars at night.
+In this new world, people learned to adapt,<br>
+to live in harmony with nature,<br>
+to be happy with the simple things in life,<br>
+to find joy in the warmth of the sun,<br>
+the cool and comforting wind,<br>
+the sound of birds singing,<br>
+and the beauty of the stars at night.<br>
 
-And they learnt never to repeat the mistakes of the past,
-to protect their world from any wars,
-to make it better for future generations,
-and to live in peace and harmony,
-forever, in the world,
-with the remaining people...
+And they learnt never to repeat the mistakes of the past,<br>
+to protect their world from any wars,<br>
+to make it better for future generations,<br>
+and to live in peace and harmony,<br>
+forever, in the world,<br>
+with the remaining people...<br>
